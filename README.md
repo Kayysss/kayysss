@@ -1,4 +1,4 @@
-### Olá, me chamo Kayky👋
+### Olá! me chamo Kayky👦🏻
 
 <!--
 **Kayysss/kayysss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
